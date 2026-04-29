@@ -107,16 +107,16 @@ Offers extra cushioning and structural support for delicate products such as ele
 
 ## Frequently Asked Questions (FAQs)
 
-### What are custom corrugated boxes made of?  
+### 1.What are custom corrugated boxes made of?  
 Custom corrugated boxes are made from layered paperboard with a fluted inner layer that provides strength and cushioning. This structure ensures durability while keeping the packaging lightweight.
 
-### Are corrugated boxes eco-friendly?  
+### 2.Are corrugated boxes eco-friendly?  
 Yes, corrugated boxes are recyclable and often made from recycled materials. They are considered one of the most sustainable packaging options available.
 
-### Can I customize the size and design?  
+### 3.Can I customize the size and design?  
 Absolutely, corrugated boxes can be fully customized in terms of size, shape, thickness, and printing to meet specific business needs.
 
-### What is the advantage of double wall boxes?  
+### 4.What is the advantage of double wall boxes?  
 Double wall boxes provide extra strength and durability, making them ideal for heavy or fragile items that require additional protection.
 
 ---
